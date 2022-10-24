@@ -14,4 +14,4 @@ Alternatively if you're a library author and want it putting into an organisatio
 
 #### Takedowns: 
 
-PM one of the team. 
+DM @DobbysGamertag or contact via Discord (`Dobby#6213`). 
